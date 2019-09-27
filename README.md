@@ -1,0 +1,1 @@
+Repozitář pro domácí úkoly z předmětu BI-VZD
